@@ -1,1 +1,1 @@
-Reconstruyendo efecto visto en (StockX)[https://stockx.com/air-jordan-11-retro-playoffs-2019]
+Reconstruyendo efecto visto en [StockX](https://stockx.com/air-jordan-11-retro-playoffs-2019)
